@@ -1,2 +1,2 @@
 # Hack-Manager
-apk
+OSINT, DOS, KEYGEN, Bluetooth
